@@ -129,7 +129,7 @@ PG Diploma in Data Engineering – IIT Jodhpur
 Project Sales Engineer – Asian Paints  
 
 🔗 LinkedIn: https://www.linkedin.com/in/abhishekagasti  
-📧 Email: (optional)
+📧 Email: agastiabhishek@gmail.com
 
 ---
 
